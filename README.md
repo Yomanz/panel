@@ -25,7 +25,7 @@ in becoming a sponsor?](https://github.com/sponsors/DaneEveritt)
 > to provide quality yet cheap services with incredible support.
 
 #### [MineStrator](https://minestrator.com/)
-> Looking for a French highend hosting company for you minecraft server? More than 14,000 members on our discord
+> Looking for a French highend hosting company for your minecraft server? More than 14,000 members on our discord
 > trust us.
 
 #### [DedicatedMC](https://dedicatedmc.io/)
